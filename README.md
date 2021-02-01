@@ -3,6 +3,6 @@
 
 **You can Navigae to site by [clicking here](https://wpstore.saivineeth.com/)**
 
-Alternate [Link](https://wpstore.saivineeth.com/) to website
+Alternate [Link](d1u.f50.myftpupload.com) to website
 
 **[Video Link](youtube.com/saivineeth)**
